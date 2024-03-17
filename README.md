@@ -18,18 +18,10 @@
 
 ### [View Website](https://climate-connect.onrender.com)
 
-![Screenshot from 2024-02-12 10-32-17](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/e3b38e6f-279d-4e7b-a702-7e55cc37484a)
+![Screenshot (6)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/40eeca4a-6617-4989-bd74-e9825ccfb15b)
 
+![Screenshot (7)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/4de8ae72-4e02-4d03-97a1-4767821e9ff3)
 
-![Screenshot from 2024-02-11 17-15-43](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/fa3be90f-c8b0-4c0d-aba2-c6a5c81d6dfa)
+![Screenshot (9)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/12774def-d455-4421-89ac-291005fadbbe)
 
-![Screenshot from 2024-02-12 10-24-34](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/0cbf90ce-2e51-401e-bb51-a8c0269a12f0)
-
-![Screenshot from 2024-02-11 17-16-31](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/828d59d0-936a-452e-8c05-2f4422ccfaaf)
-
-
-
-
-
-
-
+![Screenshot (10)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/e4369031-a783-4f62-900e-af0ee453a6bc)
