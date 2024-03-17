@@ -16,7 +16,7 @@
 
 ## Demo
 
-### [View Website](https://climate-connect.onrender.com)
+### [View Website](https://climate-connect-1.onrender.com)
 
 ![Screenshot (6)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/40eeca4a-6617-4989-bd74-e9825ccfb15b)
 
