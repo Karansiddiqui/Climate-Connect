@@ -23,3 +23,5 @@
 ![Screenshot (7)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/4de8ae72-4e02-4d03-97a1-4767821e9ff3)
 
 ![Screenshot (9)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/12774def-d455-4421-89ac-291005fadbbe)
+
+![Screenshot (10)](https://github.com/Karansiddiqui/Climate-Connect/assets/106966063/e4369031-a783-4f62-900e-af0ee453a6bc)
